@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NoProSurvivYT
+- 👋 Hi, I’m NoProSurviv on YT
 - 👀 I’m interested in surviv.io game
 
 <!---
